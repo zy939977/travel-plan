@@ -10,6 +10,12 @@
 3. 体验武家屋敷与历史街区
 4. 晚上在金泽放松
 
+## 饭店
+早餐：近江町市场 吃早餐 别馆玉ikiiki 或者 咖啡厅
+中午：武作 Busaku 1-chome-5-12 Kannonmachi, Kanazawa, Ishikawa 920-0838日本
+https://www.tablecheck.com/en/reservations/ZJ4RM3
+
+
 ## 说明
 这一天适合安排金泽最经典的历史景点。
 

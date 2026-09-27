@@ -12,3 +12,6 @@
 
 ## 说明
 这一天适合把购物和最后的大阪体验集中安排。
+
+## 邮件
+https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox/FMfcgzQhVWwKBRLXnqmnbwjrcbnKdQKr
